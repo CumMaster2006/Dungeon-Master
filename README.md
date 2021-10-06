@@ -1,1 +1,1 @@
-Ok.
+This is gachimuchi game
